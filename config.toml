@@ -1,6 +1,9 @@
 baseURL = "https://hello.observer"
-title = "hello.observer"
+title = "hello observer"
 # for smart copyright line, leave this blank and check [params.copyright]
+
+[context.production.environment]
+  HUGO_VERSION = "0.40.3"
 
 theme = "minimus"
 
