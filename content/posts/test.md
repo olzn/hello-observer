@@ -1,7 +1,7 @@
 ---
 title: "Test"
 date: 2018-05-16T13:09:36+01:00
-draft: true
+draft: false
 ---
 
 There are things which are within our power, and there are things which are beyond our power. Within our power are opinion, aim, desire, aversion, and, in one word, whatever affairs are our own. Beyond our power are body, property, reputation, office, and, in one word, whatever are not properly our own affairs.
