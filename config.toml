@@ -17,7 +17,7 @@ defaultContentLanguage = "en"
 
 [params.info]
 description = "hello observer"
-title404 = "Nothing's here!"
+title404 = "nothing here."
 
 [params.assets]
 favicon = "favicon.png"
