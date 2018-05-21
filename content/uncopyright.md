@@ -1,15 +1,19 @@
 ---
-title: "uncopyright"
-date: 2018-01-21T00:10:45-06:00
-draft: false
+title: "Uncopyright"
+date: 2018-05-21T12:40:15+01:00
+draft: true
 type: "page"
 layout: "simple"
 ---
 
-This site is exists without copyrights. Its creator has released all claims on copyright and has **put all the content into the public domain.**
+**COPYING, DISTRIBUTION & MODIFICATION**
 
-No permission is needed to copy, distribute, or modify the content of this site.
+---
 
-**Terms and Conditions for Copying, Distribution and Modification**
+- Anything published by this project exists in the [public domain](https://en.wikipedia.org/wiki/Public_domain)
+- Content written for this project uses the [uncopyright](http://uncopyright.org/)
+- Code written for this project uses the [unlicense](https://unlicense.org/)
 
-0. Do whatever the hell you like.
+---
+
+In other words, do whatever the hell you like.
