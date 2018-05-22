@@ -1,7 +1,7 @@
 ---
 title: "the ministry of the stove"
 date: 2018-05-22T09:38:07+01:00
-draft: true
+draft: false
 ---
 
 {{< youtube R_hDDvSN49Q >}}
