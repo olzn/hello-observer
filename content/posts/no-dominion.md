@@ -3,35 +3,61 @@ title: "no dominion"
 date: 2018-08-20T12:56:28+01:00
 draft: false
 ---
-And Death Shall Have No Dominion
-by Dylan Thomas
+And Death Shall Have No Dominion, by Dylan Thomas
+---
 
 And death shall have no dominion.
-Dead man naked they shall be one
-With the man in the wind and the west moon;
-When their bones are picked clean and the clean bones gone,
-They shall have stars at elbow and foot;
-Though they go mad they shall be sane,
-Though they sink through the sea they shall rise again;
-Though lovers be lost love shall not;
-And death shall have no dominion.
+
+> Dead man naked they shall be one
+
+> With the man in the wind and the west moon;
+
+> When their bones are picked clean and the clean bones gone,
+
+> They shall have stars at elbow and foot;
+
+> Though they go mad they shall be sane,
+
+> Though they sink through the sea they shall rise again;
+
+> Though lovers be lost love shall not;
+
+> And death shall have no dominion.
+
 
 And death shall have no dominion.
-Under the windings of the sea
-They lying long shall not die windily;
-Twisting on racks when sinews give way,
-Strapped to a wheel, yet they shall not break;
-Faith in their hands shall snap in two,
-And the unicorn evils run them through;
-Split all ends up they shan't crack;
-And death shall have no dominion.
+
+> Under the windings of the sea
+
+> They lying long shall not die windily;
+
+> Twisting on racks when sinews give way,
+
+> Strapped to a wheel, yet they shall not break;
+
+> Faith in their hands shall snap in two,
+
+> And the unicorn evils run them through;
+
+> Split all ends up they shan't crack;
+
+> And death shall have no dominion.
+
 
 And death shall have no dominion.
-No more may gulls cry at their ears
-Or waves break loud on the seashores;
-Where blew a flower may a flower no more
-Lift its head to the blows of the rain;
-Though they be mad and dead as nails,
-Heads of the characters hammer through daisies;
-Break in the sun till the sun breaks down,
-And death shall have no dominion.
+
+>No more may gulls cry at their ears
+
+> Or waves break loud on the seashores;
+
+> Where blew a flower may a flower no more
+
+> Lift its head to the blows of the rain;
+
+> Though they be mad and dead as nails,
+
+> Heads of the characters hammer through daisies;
+
+> Break in the sun till the sun breaks down,
+
+> And death shall have no dominion.
