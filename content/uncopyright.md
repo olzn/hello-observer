@@ -16,4 +16,4 @@ layout: "simple"
 
 ---
 
-In other words, do whatever the hell you like.
+In other words, do whatever the fuck you like.
