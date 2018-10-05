@@ -1,7 +1,7 @@
 ---
-title: "Uncopyright"
+title: "uncopyright"
 date: 2018-05-21T12:40:15+01:00
-draft: true
+draft: false
 type: "page"
 layout: "simple"
 ---
