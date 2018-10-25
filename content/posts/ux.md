@@ -1,7 +1,7 @@
 ---
 title: "ux"
 date: 2018-10-04T14:37:08+01:00
-draft: false
+draft: true
 ---
 
 **Fitts’s Law**
