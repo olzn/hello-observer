@@ -8,9 +8,9 @@ I have too much stuff. Maybe not an exhorbitant amount, maybe more, maybe even l
 
 The space also enabled the bad habit of mine of getting myself in too many hobbies. Hobbies often require stuff, so I bought said stuff. Granted these are things I have put to use, so it's not like they're just gathering dust. Still, the point remains – were they necessary? Did I _need_ them? Of course not. You might argue that these things brought me joy, and therefore were worthwhile purchases, but that's a dangerous way of thinking about posessions. A topic for another time.
 
-There's a story being told all around us, told through subliminal and not-so-subliminal channels, without us realising the plot, even though we do. The story is the one of finding happiness in a modern society. We all know it: get a job, work hard and climb up the ladder. Each promotion gets you a better salary, and with it, more opportunity to buy yourself the stuff you've always wanted. Rinse and repeat. You're right on your way to a happy life.
+There's a story being told all around us, told through subliminal and not-so-subliminal channels, without us realising the plot, even though we do. The story is the one of finding happiness in our modern society. We all know it: get a job, work hard and climb up the ladder. Each promotion gets you a better salary, and with it, more opportunity to buy yourself more of the stuff you've always wanted. Rinse and repeat. You're right on your way to a happy life.
 
-We're lulled into it, without realising the cyclical nature of this thought-process. Or maybe we do, but we ignore it, even though it's right there in front of us.
+We're lulled into it, without realising the cyclical nature of this vicious thought-process. Or maybe we do, but we ignore it, even though it's right there in front of us. Clear as day.
 
 The relentless machinery of advertisement spins its gears, works its magic and before we know it, we've found ourselves entombed beneath a mountain of absurd gadgetry, debt and a mortgage. What the fuck happened? Ensnared by our own making. Emprisoned, even though we never wanted it. To willingly sacrifice one's own freedom... surely nobody in their right mind would do such thing. Yet we do.
 
@@ -26,4 +26,4 @@ If freedom means motion, comfort means paralysis. If freedom means progress, com
 
 Seek things which return reward through struggle. Start slow but start now. Don't know how? Take the stairs instead of the lift. Try and fix something yourself instead of calling someone to fix it for you. Cook yourself that meal over getting take out. These may be minor things, but it's the mentality that permeates what matters. Slowly you'll start to build resilience over comfort.
 
-So start doing shit you don't want to do, but know you should.  In other words, get your shit together, homie.
+So start doing the things you don't want to do, but know you should.  In other words, get your shit together, homie.
