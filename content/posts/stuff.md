@@ -26,4 +26,4 @@ If freedom means motion, comfort means paralysis. If freedom means progress, com
 
 Seek things which return reward through struggle. Start slow but start now. Don't know how? Take the stairs instead of the lift. Try and fix something yourself instead of calling someone to fix it for you. Cook yourself that meal over getting take out. These may be minor things, but it's the mentality that permeates what matters. Slowly you'll start to build resilience over comfort.
 
-So start doing the things you don't want to do, but know you should.  In other words, get your shit together, homie.
+So start doing the things you don't want to do, but know you should.  In other words: get your shit together, homie.
