@@ -1,5 +1,5 @@
 ---
-title: "stuff"
+title: "baggage & burden"
 date: 2018-10-24T12:39:04+01:00
 draft: false
 ---
