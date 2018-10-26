@@ -22,10 +22,10 @@ But I ain't here to give you any answers. You must find those yourself. That's p
 
 I'll give you a clue, though, a starting point: simplify. Strive for a simpler life; own less, consume less, waste less. It's not only a moral imperative for the care of the environment, but a moral imperative for the care of ourselves. Simplify. You need less than you think to live a fulfilling life.
 
-I'll wrap this up with an excerpt from Sterling Hayden's book _Wanderer_. He already put this in a much better way than I ever could, so I'm not even going to bother.
+I'll wrap this up with an excerpt from Sterling Hayden's book _Wanderer_, as he already put this in a much better way than I ever could.
 
 >What does a man need - really need? A few pounds of food each day, heat and shelter, six feet to lie down in - and some form of working activity that will yield a sense of accomplishment. That's all - in the material sense, and we know it. But we are brainwashed by our economic system until we end up in a tomb beneath a pyramid of time payments, mortgages, preposterous gadgetry, playthings that divert our attention for the sheer idiocy of the charade.
 
->The years thunder by, The dreams of youth grow dim where they lie caked in dust on the shelves of patience. Before we know it, the tomb is sealed.
+>The years thunder by, the dreams of youth grow dim where they lie caked in dust on the shelves of patience. Before we know it, the tomb is sealed.
 
 >Where, then, lies the answer? In choice. Which shall it be: bankruptcy of purse or bankruptcy of life?
