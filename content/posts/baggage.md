@@ -12,17 +12,17 @@ There's a story being told all around us, told through subliminal and not-so-sub
 
 We're lulled into it, without realising the cyclical nature of this vicious thought-process. Or maybe we do, but we ignore it, even though it's right there in front of us. Clear as day.
 
-The relentless machinery of advertisement spins its gears, works its magic and before we know it, we've found ourselves entombed beneath a mountain of absurd gadgetry, debt and a mortgage. What the fuck happened? Ensnared by our own making. Emprisoned, even though we never wanted it. To willingly sacrifice one's own freedom... surely nobody in their right mind would do such thing. Yet we do.
+The relentless machinery of advertisement spins its gears, works its magic and before we know it, we've found ourselves trapped surrounded by absurd artifacts, crippling debt and a mortgage to top it off. What the fuck happened? Ensnared by our own making. Emprisoned, even though we never wanted it. To willingly sacrifice one's own freedom... surely nobody in their right mind would do such thing. Yet we do.
 
 It's a palpable sensation, this one of feeling trapped. And a cause of great anxiety, even for those perceptive enough to identify its roots. Especially because there is more anxiety waiting behind the thoughts of devicing a way to escape. But freedom comes at a cost.
 
-In order to break down the shackles, we must first have a good look and understand what these shackles are made of. Where _is_ the anxiety coming from, exactly? And how much of this is real versus a matter of perception? Not only that, but if we are to be free, we must define what this even means for us, in the first place.
+In order to break down the shackles, we must first have a good look and understand what these shackles are made of. Where is the anxiety coming from, exactly? And how much of this is real versus a matter of perception? Not only that, but if we are to be free, we must define what this even means for us, in the first place.
 
 But I ain't here to give you any answers. You must find those yourself. That's part of the process. No one will come to our rescue. I certainly won't.
 
 I'll give you a clue, though, a starting point: simplify. Strive for a simpler life; own less, consume less, waste less. It's not only a moral imperative for the care of the environment, but a moral imperative for the care of ourselves. Simplify. You need less than you think to live a fulfilling life.
 
-Ending this diatribe with an excerpt from Sterling Hayden's book _Wanderer_.
+I'll close this with an excerpt from Sterling Hayden's book _Wanderer_. He already put this in a much better way than I ever could, so I'm not even going to bother.
 
 >What does a man need - really need? A few pounds of food each day, heat and shelter, six feet to lie down in - and some form of working activity that will yield a sense of accomplishment. That's all - in the material sense, and we know it. But we are brainwashed by our economic system until we end up in a tomb beneath a pyramid of time payments, mortgages, preposterous gadgetry, playthings that divert our attention for the sheer idiocy of the charade.
 
