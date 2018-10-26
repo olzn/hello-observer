@@ -20,10 +20,10 @@ In order to break down the shackles, we must first have a good look and understa
 
 But I ain't here to give you any answers. You must find those yourself. That's part of the process. No one will come to our rescue. I certainly won't.
 
-I'll give you a clue, though, a starting point: there's safety in numbers, and a sense of comfort that arises from participating in the lifestyle your peers and everyone else around you takes part in. But the wisdom of the crowds will only get you so far. Make no mistake: comfort is the enemy. Beware of it, as it leads nowhere but dead ends in this maze we're trying to escape from.
+I'll give you a clue, though, a starting point: simplify. Strive for a simpler life; own less, consume less, waste less. It's not only a moral imperative for the care of the environment, but a moral imperative for the care of ourselves. Just as things pollute our surroundings, they pollute our lives.
+
+Of course this is easier said than done. It goes against everything we're being told. Why would we? There's safety in numbers, and a sense of comfort that arises from participating in the lifestyle your peers and everyone else around you takes part in. But the wisdom of the crowds will only get you so far. Make no mistake: comfort is the enemy. Beware of it, as it leads nowhere but dead ends in this maze we're trying to escape from.
 
 If freedom means motion, comfort means paralysis. If freedom means progress, comfort means stagnation.
 
-Seek things which return reward through struggle. Start slow but start now. Don't know how? Take the stairs instead of the lift. Try and fix something yourself instead of calling someone to fix it for you. Cook yourself that meal over getting take out. These may be minor things, but it's the mentality that permeates what matters. Slowly you'll start to build resilience over comfort.
-
-So start doing the things you don't want to do, but know you should.  In other words: get your shit together, homie.
+So start doing the thing you don't want to do, but know you should.  In other words, get your shit together, homie.
