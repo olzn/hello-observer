@@ -20,10 +20,12 @@ In order to break down the shackles, we must first have a good look and understa
 
 But I ain't here to give you any answers. You must find those yourself. That's part of the process. No one will come to our rescue. I certainly won't.
 
-I'll give you a clue, though, a starting point: simplify. Strive for a simpler life; own less, consume less, waste less. It's not only a moral imperative for the care of the environment, but a moral imperative for the care of ourselves. Just as things pollute our surroundings, they pollute our lives.
+I'll give you a clue, though, a starting point: simplify. Strive for a simpler life; own less, consume less, waste less. It's not only a moral imperative for the care of the environment, but a moral imperative for the care of ourselves. Simplify. You need less than you think to live a fulfilling life.
 
-Of course this is easier said than done. It goes against everything we're being told. Why would we? There's safety in numbers, and a sense of comfort that arises from participating in the lifestyle your peers and everyone else around you takes part in. But the wisdom of the crowds will only get you so far. Make no mistake: comfort is the enemy. Beware of it, as it leads nowhere but dead ends in this maze we're trying to escape from.
+Ending this diatribe with an excerpt from Sterling Hayden's book _Wanderer_.
 
-If freedom means motion, comfort means paralysis. If freedom means progress, comfort means stagnation.
+>What does a man need - really need? A few pounds of food each day, heat and shelter, six feet to lie down in - and some form of working activity that will yield a sense of accomplishment. That's all - in the material sense, and we know it. But we are brainwashed by our economic system until we end up in a tomb beneath a pyramid of time payments, mortgages, preposterous gadgetry, playthings that divert our attention for the sheer idiocy of the charade.
 
-So start doing the thing you don't want to do, but know you should.  In other words, get your shit together, homie.
+>The years thunder by, The dreams of youth grow dim where they lie caked in dust on the shelves of patience. Before we know it, the tomb is sealed.
+
+>Where, then, lies the answer? In choice. Which shall it be: bankruptcy of purse or bankruptcy of life?
