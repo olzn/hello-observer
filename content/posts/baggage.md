@@ -20,10 +20,12 @@ In order to break down the shackles, we must first have a good look and understa
 
 But I ain't here to give you any answers. You must find those yourself. That's part of the process. No one will come to our rescue. I certainly won't.
 
-Sterling Hayden gives us a clue. An excerpt from his book _Wanderer_...
+--
 
 >What does a man need - really need? A few pounds of food each day, heat and shelter, six feet to lie down in - and some form of working activity that will yield a sense of accomplishment. That's all - in the material sense, and we know it. But we are brainwashed by our economic system until we end up in a tomb beneath a pyramid of time payments, mortgages, preposterous gadgetry, playthings that divert our attention for the sheer idiocy of the charade.
 
 >The years thunder by, the dreams of youth grow dim where they lie caked in dust on the shelves of patience. Before we know it, the tomb is sealed.
 
 >Where, then, lies the answer? In choice. Which shall it be: bankruptcy of purse or bankruptcy of life?
+
+>_**Sterling Hayden, Wanderer - 1963**_
