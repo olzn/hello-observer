@@ -28,4 +28,4 @@ But I ain't here to give you any answers. You must find those yourself. That's p
 
 >Where, then, lies the answer? In choice. Which shall it be: bankruptcy of purse or bankruptcy of life?
 
->_**Sterling Hayden, Wanderer - 1963**_
+>_**Sterling Hayden - Wanderer, 1963**_
