@@ -12,6 +12,6 @@ draft: false
 
 >a lo largo de la frontera,
 
->a lo largo del camino…
+>a lo largo del camino.
 
 -Federico García Lorca
