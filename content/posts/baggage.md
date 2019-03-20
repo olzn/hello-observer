@@ -1,7 +1,7 @@
 ---
 title: "baggage & burden"
 date: 2018-10-24T12:39:04+01:00
-draft: false
+draft: true
 ---
 
 I have too much stuff. Maybe not an exhorbitant amount. Maybe more, maybe even less than you do. But that's really beside the point. I have enough stuff to make me feel uneasy, and that's what matters. Accumulated possessions I thought I needed – or maybe not _needed_, but definitely desired – piled up over time. And I had the means to get them, so, well, why not? It happens to all of us. Me, I fell into the classic trap: moved to a bigger place, then suddenly found myself with more space than I knew what to do with. So obviously I filled that up with stuff, because, well, that's what you do. Nobody wants to live in empty rooms.
