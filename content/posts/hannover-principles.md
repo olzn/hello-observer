@@ -5,9 +5,7 @@ draft: false
 ---
 
 
-The Hannover Principles were commissioned by the City of Hannover, Germany, to guide the design of the 2000 World Fair. They continue to inform the ever-evolving conversation on design for sustainability.
-
-The Hannover Principles are committed to transformation and growth in the understanding of our interdependence with nature and may be adapted as our knowledge of the world evolves.
+The Hannover Principles were commissioned by the City of Hannover, Germany, to guide the design of the 2000 World Fair. They continue to inform the ever-evolving conversation on design for sustainability. The Hannover Principles are committed to transformation and growth in the understanding of our interdependence with nature and may be adapted as our knowledge of the world evolves.
 
 ---
 ---
